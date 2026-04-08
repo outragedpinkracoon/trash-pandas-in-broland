@@ -6,17 +6,9 @@ Please read the [Code of Conduct](https://github.com/outragedpinkracoon/trash-pa
 
 **Mischief in Broland 🦝**
 
-Broland exists and we're not pretending it doesn't.
-
-We're not asking permission to be here.
-
-We're not defined by them. We're just aware of the landscape.
-
-And we're having more fun than they are.
-
-**Hello there!**
-
 A group of raccoons is called a mischief. Welcome to yours.
+
+We are racoons. We find treasure where others see trash. We look out for each other, we call BS, and we do not apologise for taking up space.
 
 Mischief in Broland is a private community for people who work in tech and have noticed that it is, occasionally, completely feral out here. Not in a fun way. The kind where you finish a meeting and think "was that just me or was that genuinely unhinged" and you have nobody to ask.
 
