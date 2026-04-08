@@ -1,4 +1,4 @@
-# This is the homepage for the Trash Pandas in Broland community.
+# This is the homepage for the Mischief in Broland community.
 
 If you'd like an invite, drop me a line on [linkedin](https://www.linkedin.com/in/outragedpinkracoon/).
 
